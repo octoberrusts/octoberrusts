@@ -9,4 +9,4 @@
 <p align=center>hello iam hyperlaser real(i am not actually an irl hes just a strong kin LOL)<p align=center>
 </br>
 <p align="center">| EAGLES :eagle: | <p align="center">
-<p align="center"> SUBSPACE[SUBSPACE](https://github.com/SUBSP4CE) CASH[CASH](https://github.com/cashiergasa4) KITTY[KITTY](https://github.com/WAROF02) <p align="center">
+<p align="center"> <p align="center">
