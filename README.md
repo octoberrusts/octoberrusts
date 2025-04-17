@@ -8,5 +8,3 @@
 </br>
 <p align=center>hello iam hyperlaser real(i am not actually an irl hes just a strong kin LOL)<p align=center>
 </br>
-<p align="center">| EAGLES :eagle: | <p align="center">
-<p align="center"> this is [subspace](https://github.com/SUBSP4CE). <p align="center">
