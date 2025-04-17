@@ -7,4 +7,6 @@
 </p>
 </br></br></br>
 <p align=center>hello iam hyperlaser real(i am not actually an irl hes just a strong kin LOL)<p align=center>
-
+</br></br></br>
+<p align="center">| EAGLES :eagle: | <p align="center">
+<p align="center"> @SUBSP4CE @cashiergasa4 @WAROF02 <p align="center">
