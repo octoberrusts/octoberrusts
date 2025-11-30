@@ -6,7 +6,7 @@
 <img src="https://i.imgur.com/U0wUxAy.jpeg" width="800" height="300" border="10"/>
 </p>
 </br>
-<p align=center>hello iam hyperlaser real(i am not actually an irl hes just a strong kin LOL)<p align=center>
+<p align=center>hello . i am hyperlaser real (i am not actually an irl hes just a strong kin LOL)<p align=center>
 </br>
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
