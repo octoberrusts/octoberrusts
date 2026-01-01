@@ -10,4 +10,5 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=7fde0dxv2g4okfn6vlr4xlgsi&cover_image=true&theme=natemoo-re&show_offline=false&background_color=07435f&interchange=false&profanity=false&bar_color=19acae&bar_color_cover=false">
   </a>
 </p>
+</br>
 <p align="center"><img src="https://files.catbox.moe/awljrk.png" width="500" height="250" border="10"/><p align="center">
